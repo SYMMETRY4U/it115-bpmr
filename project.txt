@@ -5,6 +5,5 @@ that have paved their way and stamped their names into the history books.
 
 This year we will be honoring 4 different individuals that have created an impact in the motorcycle industry while striving to their life long achievements.
 
-
-
-I'm thrilled to share that I just created my first Git branch! 🌿🎉 This marks a significant step in our project development, allowing us to work on new features, bug fixes, or experiments without affecting the main codebase.
+First up we have Carl, with his innovative new motorcycle design that brews coffee while you ride.
+Now you can get your caffeine fix on the go!!!
