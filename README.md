@@ -12,3 +12,4 @@ We caught and released around 50 salmon on the first day. It was incredible. We 
 The bears kept creeping closer, eventually separating from one another in an attempt to corner us. Jakes' grandpa fired his rifle to scare them off, and it worked. However, when one of the bears started running, it chose a direction that put my friend Harry right in its path. The bear essentially tackled Harry and kept running. We ran to his side to ensure he was okay, and thankfully, he was just scratched up a little.
 
 We all sat down on a log, still very much on edge, and finally, the silence broke. Jakes' grandpa let out a laugh, saying that this would be a trip we'd never forget. He was not wrong. Every part of that trip, I can still remember like it was yesterday.
+Ever since that trip we have all went back to Alaska as a group every year. All hoping for the thrill of the same adventure we had when we were kids. 
